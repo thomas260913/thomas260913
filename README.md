@@ -1,0 +1,5 @@
+- 👋 Bonjour, Je suis @thomas260913
+- 👀 Je suis intéressé par le developpement
+- 🌱 J'étudie l'informatique
+- 📫 Comment me contacter: thomas260913 sur discord
+- ⚡ Fun fact: Je connais les bases 9 langage de programmation
